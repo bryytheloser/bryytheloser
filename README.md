@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-🌙: offtab/afk || 🟢/⛔️: online
+🌙: offtab/afk (w2i) || 🟢/⛔️: online
   </p>
   
 ***
