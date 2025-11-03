@@ -3,6 +3,6 @@
 </p>
 
 <p align="center">
-  🌙: offtab/afk // 🟢/⛔️: online
+  🌙: offtab/afk || 🟢/⛔️: online
   </p>
 
