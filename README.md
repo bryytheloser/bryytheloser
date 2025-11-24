@@ -7,10 +7,6 @@
   </p>
   
 ***
-<p align="center">
-  <img src="https://64.media.tumblr.com/b3dd1994f3175558946ea4a73caf3ae1/e33c4a23abd9e0ec-8b/s540x810/f76b22d0c8db0f45e9a4361cf187ce1902747a47.pnj" />
-</p>
-
 [RENTRY](https://rentry.co/5pkh6kqh) 😛 <-check it out !!
 <img src="https://64.media.tumblr.com/0630e156d5c263aaab282f6213eb8a0d/10876e85d05d36b2-df/s75x75_c1/c279ef6e0a5ff7ee5ac77787e9b132edc9a8f435.gifv" />
 
