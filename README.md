@@ -1,18 +1,17 @@
-<p align="center">
+<div align="center">
 <img src="https://github.com/user-attachments/assets/0b861146-8f9d-4928-b35c-fab8b83d2992" />
-</p>
+
 
 <p align="center">
 🌙: offtab/afk (w2i) || 🟢/⛔️: online
-  </p>
+
   
 ***
-[RENTRY](https://rentry.co/5pkh6kqh) 😛 <-check it out !!
-<img src="https://64.media.tumblr.com/0630e156d5c263aaab282f6213eb8a0d/10876e85d05d36b2-df/s75x75_c1/c279ef6e0a5ff7ee5ac77787e9b132edc9a8f435.gifv" />
+[RENTRY](https://rentry.co/5pkh6kqh) ||strawpage coming soon||[pronouns.pg](https://en.pronouns.page/@callmebryy)
 
 
 
 
 <p align="center">
-I LOVE GUEST!!!<img src="https://media.tenor.com/-Nm5vM8H2qcAAAAj/save-robloxia-roblox.gif" />
-</p>
+
+I LOVE GUEST!!!
