@@ -3,7 +3,7 @@
 
 
 <p align="center">
-🌙: offtab/afk (w2i) || 🟢/⛔️: online
+gon update this soon
 
   
 ***
