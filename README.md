@@ -21,4 +21,3 @@ gon remake this soon..
 
 I LOVE GUEST!!!
 ***
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31n3kdt33u3gtiyx7xfbajpxs6va&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=b30000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
