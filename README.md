@@ -21,4 +21,4 @@ gon remake this soon..
 
 I LOVE GUEST!!!
 ***
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31n3kdt33u3gtiyx7xfbajpxs6va&cover_image=false&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=true&mode=dark&bar_color=b30000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31n3kdt33u3gtiyx7xfbajpxs6va&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=d10000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
