@@ -3,7 +3,7 @@
 
 
 <p align="center">
-gon remake this soon..
+REMAKING everything
 
   
 ***
